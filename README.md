@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Jackline
 
-- 🔭 Currently into Climate tech 
+- 🔭 Currently into AI 
 - 👯 Enthusiastic about collaborating on innovative projects and contributing to the community.
 - 📫 Reach me at jacklinetum17@gmail.com – I'm always up for a discussion.
 - 😄 Pronouns: she/her
